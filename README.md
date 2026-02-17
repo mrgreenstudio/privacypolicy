@@ -1,1 +1,0 @@
-# mrgreenstudioprivacypolicy.github.io
